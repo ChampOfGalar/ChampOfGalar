@@ -1,4 +1,1 @@
-<img width="736" height="736" alt="jackk__fliter--red-sunset-with-purple__channel--all__mode--darken-Picsart-BackgroundRemover" src="https://github.com/user-attachments/assets/46b18481-9ac0-405a-bdee-8fee0e4b0d01" />
-
-
-
+<img width="736" height="736" alt="_ (4)__fliter--red-sunset-with-purple__channel--all__mode--darken-Picsart-BackgroundRemover" src="https://github.com/user-attachments/assets/76556c76-d917-492d-b174-6594c2abc80f" /> 
