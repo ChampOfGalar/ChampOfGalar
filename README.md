@@ -1,4 +1,5 @@
-![_ (8)](https://github.com/user-attachments/assets/998cf4e7-c246-4eec-bfe7-2f36c9b96dc5)
+<img width="736" height="736" alt="Blot pfp! _3-Picsart-BackgroundRemover" src="https://github.com/user-attachments/assets/d2fe4d9d-af17-4705-b603-90bff1cc9e4d" />
+
 
 
 
