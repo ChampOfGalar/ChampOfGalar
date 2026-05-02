@@ -1,4 +1,5 @@
-<img width="736" height="736" alt="Blot pfp! _3-Picsart-BackgroundRemover" src="https://github.com/user-attachments/assets/d2fe4d9d-af17-4705-b603-90bff1cc9e4d" />
+<img width="736" height="415" alt="✒️ _ Blot Header ദ്ദി๑__•̀๑)" src="https://github.com/user-attachments/assets/4b81e617-e11b-4429-ad26-9c9a330a4630" />
+
 
 
 
